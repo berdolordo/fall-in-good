@@ -1,5 +1,9 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-05-13 02:33 (IR Time)
+- 📥 [vid_360p.z01](https://github.com/berdolordo/fall-in-good/raw/main/dl/vid_360p.z01) `95.00 MB`
+- 🗜️ [vid_360p.zip](https://github.com/berdolordo/fall-in-good/raw/main/dl/vid_360p.zip) `80.34 MB`
+
 ### 📅 2026-05-13 02:32 (IR Time)
 - 📥 [vid_480p.z01](https://github.com/berdolordo/fall-in-good/raw/main/dl/vid_480p.z01) `95.00 MB`
 - 📥 [vid_480p.z02](https://github.com/berdolordo/fall-in-good/raw/main/dl/vid_480p.z02) `95.00 MB`
