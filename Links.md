@@ -1,5 +1,15 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-05-13 10:44 (IR Time)
+- 📥 [vid_720p.z01](https://github.com/berdolordo/fall-in-good/raw/main/dl/vid_720p.z01) `95.00 MB`
+- 📥 [vid_720p.z02](https://github.com/berdolordo/fall-in-good/raw/main/dl/vid_720p.z02) `95.00 MB`
+- 📥 [vid_720p.z03](https://github.com/berdolordo/fall-in-good/raw/main/dl/vid_720p.z03) `95.00 MB`
+- 📥 [vid_720p.z04](https://github.com/berdolordo/fall-in-good/raw/main/dl/vid_720p.z04) `95.00 MB`
+- 📥 [vid_720p.z05](https://github.com/berdolordo/fall-in-good/raw/main/dl/vid_720p.z05) `95.00 MB`
+- 📥 [vid_720p.z06](https://github.com/berdolordo/fall-in-good/raw/main/dl/vid_720p.z06) `95.00 MB`
+- 📥 [vid_720p.z07](https://github.com/berdolordo/fall-in-good/raw/main/dl/vid_720p.z07) `95.00 MB`
+- 🗜️ [vid_720p.zip](https://github.com/berdolordo/fall-in-good/raw/main/dl/vid_720p.zip) `23.69 MB`
+
 ### 📅 2026-05-13 02:39 (IR Time)
 - 📥 [_PuCi Movie_Two_For_One_On_Valentines_Day_S3_E7.z01](https://github.com/berdolordo/fall-in-good/raw/main/dl/_PuCi%20Movie_Two_For_One_On_Valentines_Day_S3_E7.z01) `95.00 MB`
 - 📥 [_PuCi Movie_Two_For_One_On_Valentines_Day_S3_E7.z02](https://github.com/berdolordo/fall-in-good/raw/main/dl/_PuCi%20Movie_Two_For_One_On_Valentines_Day_S3_E7.z02) `95.00 MB`
