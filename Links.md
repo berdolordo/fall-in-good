@@ -1,5 +1,11 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-05-13 17:10 (IR Time)
+- 📥 [Poyraz Karayel 25. Bölüm - Full Bölüm.z01](https://github.com/berdolordo/fall-in-good/raw/main/dl/Poyraz%20Karayel%2025.%20B%C3%B6l%C3%BCm%20-%20Full%20B%C3%B6l%C3%BCm.z01) `95.00 MB`
+- 📥 [Poyraz Karayel 25. Bölüm - Full Bölüm.z02](https://github.com/berdolordo/fall-in-good/raw/main/dl/Poyraz%20Karayel%2025.%20B%C3%B6l%C3%BCm%20-%20Full%20B%C3%B6l%C3%BCm.z02) `95.00 MB`
+- 📥 [Poyraz Karayel 25. Bölüm - Full Bölüm.z03](https://github.com/berdolordo/fall-in-good/raw/main/dl/Poyraz%20Karayel%2025.%20B%C3%B6l%C3%BCm%20-%20Full%20B%C3%B6l%C3%BCm.z03) `95.00 MB`
+- 🗜️ [Poyraz Karayel 25. Bölüm - Full Bölüm.zip](https://github.com/berdolordo/fall-in-good/raw/main/dl/Poyraz%20Karayel%2025.%20B%C3%B6l%C3%BCm%20-%20Full%20B%C3%B6l%C3%BCm.zip) `91.02 MB`
+
 ### 📅 2026-05-13 10:44 (IR Time)
 - 📥 [vid_720p.z01](https://github.com/berdolordo/fall-in-good/raw/main/dl/vid_720p.z01) `95.00 MB`
 - 📥 [vid_720p.z02](https://github.com/berdolordo/fall-in-good/raw/main/dl/vid_720p.z02) `95.00 MB`
