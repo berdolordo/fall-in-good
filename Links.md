@@ -1,5 +1,11 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-05-14 16:51 (IR Time)
+- 📥 [Poyraz Karayel 27. Bölüm - Full Bölüm.z01](https://github.com/berdolordo/fall-in-good/raw/main/dl/Poyraz%20Karayel%2027.%20B%C3%B6l%C3%BCm%20-%20Full%20B%C3%B6l%C3%BCm.z01) `95.00 MB`
+- 📥 [Poyraz Karayel 27. Bölüm - Full Bölüm.z02](https://github.com/berdolordo/fall-in-good/raw/main/dl/Poyraz%20Karayel%2027.%20B%C3%B6l%C3%BCm%20-%20Full%20B%C3%B6l%C3%BCm.z02) `95.00 MB`
+- 📥 [Poyraz Karayel 27. Bölüm - Full Bölüm.z03](https://github.com/berdolordo/fall-in-good/raw/main/dl/Poyraz%20Karayel%2027.%20B%C3%B6l%C3%BCm%20-%20Full%20B%C3%B6l%C3%BCm.z03) `95.00 MB`
+- 🗜️ [Poyraz Karayel 27. Bölüm - Full Bölüm.zip](https://github.com/berdolordo/fall-in-good/raw/main/dl/Poyraz%20Karayel%2027.%20B%C3%B6l%C3%BCm%20-%20Full%20B%C3%B6l%C3%BCm.zip) `12.63 MB`
+
 ### 📅 2026-05-13 17:12 (IR Time)
 - 📥 [Poyraz Karayel 26. Bölüm - Full Bölüm.z01](https://github.com/berdolordo/fall-in-good/raw/main/dl/Poyraz%20Karayel%2026.%20B%C3%B6l%C3%BCm%20-%20Full%20B%C3%B6l%C3%BCm.z01) `95.00 MB`
 - 📥 [Poyraz Karayel 26. Bölüm - Full Bölüm.z02](https://github.com/berdolordo/fall-in-good/raw/main/dl/Poyraz%20Karayel%2026.%20B%C3%B6l%C3%BCm%20-%20Full%20B%C3%B6l%C3%BCm.z02) `95.00 MB`
